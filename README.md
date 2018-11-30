@@ -1,6 +1,3 @@
-![icon](https://pbs.twimg.com/profile_images/593699551531421696/6mf9pBuE.jpg =100x100)
-
-
 Cantautor
 
 
